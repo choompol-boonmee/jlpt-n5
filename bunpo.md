@@ -5,10 +5,13 @@ N5
 <https://nihongokyoshi-net.com/2019/12/18/jlptn5-grammar-atode/>
 
 3. あまり〜ない 
+https://nihongokyoshi-net.com/2019/12/12/jlptn5-grammar-amari-nai/
 
 5. 〜がいちばん
+https://nihongokyoshi-net.com/2020/02/26/jlptn5-grammar-gaichiban/
 
 6. 〜方
+https://nihongokyoshi-net.com/2018/04/12/jlptn5-grammar-kata/
 
 7. 〜が欲しい
 
